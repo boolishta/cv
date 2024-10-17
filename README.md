@@ -5,7 +5,7 @@
 
 ## Контактная информация
 - **Email:** batr.fly@mail.ru
-- **Telegram:** @boolishta
+- **Telegram:** [@boolishta](https://t.me/boolishta)
 
 ---
 
